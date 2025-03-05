@@ -1,5 +1,3 @@
-!Optum Technologies Logo
-
 # Professional Experience
 
 ## Current Role: Scrum Lead, OPTUM TECHNOLOGIES – GURUGRAM (Jan 2018 – Present)
